@@ -1,5 +1,9 @@
-### Hi there 👋
 
+
+- Major in Industrial Engineering from Hankuk Univ. of Foreign Studies (2017.03 ~ 2023.08) <br>
+- 3rd generation of SKT Fly AI Challenger (2023.06 ~ 2023.09)
+
+<br>
 
 ### Skills
 <p>
